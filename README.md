@@ -19,8 +19,8 @@
 *(comes with flskinner)*
 
 ---
-## [Dark Theme v2](https://drive.google.com/file/d/1JWtNYVURqClvzWukm7H2yioTroxriM-y/view?usp=sharing) by Simon Lykke
-![enter image description here](https://i.ibb.co/8r02bGS/FL64-fxgti3e-S11.png)
+## [Dark Theme v3](https://drive.google.com/drive/folders/1AglyxfQiklmqCOUACnYd6Xs5iXTE2AmB?usp=sharing) by Simon Lykke
+![enter image description here](https://i.ibb.co/bHxxyhr/2dgwd68v68.png)
 ---
 ## [Dark blue](https://drive.google.com/file/d/1jg0Oj1DyhGLpgZYM_pjRkg3wWzW0awmK/view?usp=sharing) by faniry#6970
 ![enter image description here](https://i.ibb.co/NKcVtGW/9u-Hb-IIh6gi.png)
