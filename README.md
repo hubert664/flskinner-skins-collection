@@ -66,7 +66,7 @@
 ## [Kookie Dark](https://drive.google.com/file/d/11f8ZunJppiI1DnKXFa-q_Q7rLJw1o1Bi/view?usp=sharing) by Kookie Monster#5317
 ![enter image description here](https://i.ibb.co/zHb5ZkL/FL64-ct3-Bd1-S3h-Z.png)
 ## [Binary](https://drive.google.com/file/d/156LBcF6BYD1WUyO5jZQfx-7Uslr_cWV5/view) by Devin Draco
-![enter image description here](https://i.ibb.co/dWtYq3v/FL64-UJsj-MEs-C2-F.png)
+![enter image description here](https://i.ibb.co/RhybhWx/Mu-Aj-ZEFim-Q.png)
 
 ---
 ----
